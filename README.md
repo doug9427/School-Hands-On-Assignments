@@ -1,1 +1,1 @@
-# I have uploaded the Hands-On Assignments that I completed for school, to illustrate my progress through the online program.
+# I have uploaded the Final Project for each Module completed for my online school program.
